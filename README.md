@@ -2,3 +2,14 @@
 
 # I am @jmarise also known as Jarod(Juh-Rod) 👋🏾 . 
 
+
+### About Me
+
+- I am from Jacksonville, FL. 
+- Graduated w/ a BS in Information Technology at The University of North Florida.  
+- Served in the US Air Force for 8 years. 
+
+### Hobbies 
+- Gym 
+- Studying / investing in Crypto
+- Coding
