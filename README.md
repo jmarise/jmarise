@@ -14,4 +14,5 @@
 - Studying / investing in Crypto
 - Coding
 
-- [Résumé](https://docs.google.com/document/d/1oFaekwpWK6IEpBVwu2Cfjf37H_LBxl0YXLbCSxxqKNY/edit?usp=sharing)
+
+Last but not least: [Résumé](https://docs.google.com/document/d/1oFaekwpWK6IEpBVwu2Cfjf37H_LBxl0YXLbCSxxqKNY/edit?usp=sharing)
